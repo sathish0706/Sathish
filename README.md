@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **sathishramalingam06@gmail.com**
 
-- 📄 Know about my experiences [file:///C:/Users/sathish%20R/Downloads/White%20Simple%20Student%20Cv%20Resume%20(5).pdf](file:///C:/Users/sathish%20R/Downloads/White%20Simple%20Student%20Cv%20Resume%20(5).pdf)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1DFx-7iXtc0qjF1O8Bp65Hu2QqRMxC3qq/view]()
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
